@@ -1,4 +1,4 @@
-## Hi there 👋
+## Oi, eu sou o Gustavo Bueno.
 
 
 - 📖 Atualmente cursando Ciencia Da Computação na Univerisdade Federal de Jatái.
